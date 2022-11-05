@@ -1,0 +1,1 @@
+# adobe-cracked-master-collection
